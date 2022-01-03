@@ -1,0 +1,1 @@
+# birlikteyapalim-alistirma
